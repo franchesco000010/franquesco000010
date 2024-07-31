@@ -1,1 +1,1 @@
-# O Peito Esta Doendo OOO Tomara Que Seja Infarto OO Se for Amaor EU TO Ferrado oo
+# O Peito Esta Doendooo Tomara Que Seja Infartooo Se for Amaor EU TO Ferradooo
